@@ -1,1 +1,0 @@
-# La-caverna-del-sapien
